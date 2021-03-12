@@ -8,7 +8,7 @@ Por curiosidade me inscrevi num bootcamp da Digital Innovation One, onde houve e
 
 Convido todos a verem e darem suas sugestões do que eu poderia melhorar. 
 
-Agradeço desde já a todos vocês que têm curiosidade em ver meus projetos.
+Agradeço desde já a todos vocês que gostariam de ver meus projetos.
 
 
 
